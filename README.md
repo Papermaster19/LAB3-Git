@@ -1,0 +1,1 @@
+Puisqu'il me permettera d'effectuer des modifications soit par moi-même ou avec des collègues, sans modifier le travail de base et risquer tout perdre ou faire une gaffe digne de Gaston.
